@@ -5,5 +5,4 @@
 - 🤔 I’m looking for help with Cybersecurity (for jobs/ internships)
 
 - 📫 How to reach me: vishupatel9766@gmail.com 
-- 
-- ⚡ Fun fact: ...
+  
